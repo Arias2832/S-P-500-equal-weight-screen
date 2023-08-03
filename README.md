@@ -1,0 +1,1 @@
+## Cuantitive algorithm project https://www.youtube.com/watch?v=xfzGZB4HhEE&t=1063s
